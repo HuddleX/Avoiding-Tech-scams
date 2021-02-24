@@ -1,2 +1,2 @@
 # Avoiding-Tech-scams
-What we can do to prevent tech scams
+ignore this pls im making this for school xd
